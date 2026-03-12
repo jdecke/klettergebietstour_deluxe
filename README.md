@@ -15,7 +15,7 @@ Das ganze soll natürlich nicht nur ein tolles Erlebnis für uns werden, sondern
 Peter Bessler ist Industriekletterer und Unternehmer und hat als gebürtiger Leipziger das Klettern in der Sächsischen Schweiz vor über 20 Jahren für sich entdeckt und ist seitdem regelmäßig in den Gebieten unterwegs.
 
 Jens Decke ist Ingenieur und Guinness Weltrekordhalter aus Eschwege. 
-![Peter + Jens](Muesli.jpg)
+![Peter + Jens](Muesli.JPG)
 
 Wir sind seit vielen Jahren über den Bergsport insbesondere dem Highlining eng verbunden und haben schon einige Ideen gemeinsam umgesetzt. Unsere Leidenschaft ist es sportarten miteinander zu verbinden und so neue Erlebnisse zu schaffen.
 
